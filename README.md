@@ -6,6 +6,8 @@
 
 ![tumblr_7b0f0d5cf00fbbd984795e8b4cd7cd41_3581ff20_250](https://github.com/user-attachments/assets/eafd76ef-9cf2-43fc-8241-f90a2005fbb4)![tumblr_68580a8b0fdf94a757335deff313cc9d_653075ef_250](https://github.com/user-attachments/assets/5d76a994-ee9e-469f-aea4-3da8a9aa39e5)![tumblr_f9a52a353a883d7aedf3b4d3840b7a4b_85374c68_250](https://github.com/user-attachments/assets/13731693-29e1-4e24-a40f-b777e33df579)![tumblr_a7d4147e37a05dd84aec6158e90be718_77223124_250](https://github.com/user-attachments/assets/e351152a-543d-4c83-8041-8607d9550722)![tumblr_dbdb9c28297408b0b2413795b61602e2_b48c8165_250](https://github.com/user-attachments/assets/d1e409a1-c906-4bd5-95a9-967c0bae92ea)![tumblr_c6835c670a98a48543f22f944680cefd_c25234e6_250](https://github.com/user-attachments/assets/050ffd2f-f682-4c45-89ef-98fefc0fa911)![tumblr_4c3a172f79abdc606618049b6aeb86c9_6a62a00f_250](https://github.com/user-attachments/assets/f6147fef-a79f-4219-a2ae-ff0df7cb3d0e)![tumblr_65332c6dd1e353d71580e6b54cceb8c8_6f7ad4bf_250](https://github.com/user-attachments/assets/b07b60ee-596d-40fc-9dca-b1e884b9dfdd)![tumblr_3226232d4ad9a8fed1eb91924af87e5f_91f8c512_250](https://github.com/user-attachments/assets/bf041441-7ee6-456f-b54e-b9e90f208625)![tumblr_8149c7641c694e6f392ca83f7fd52890_6465e959_250](https://github.com/user-attachments/assets/1ad9dccb-2da9-4d0e-9ab2-e40b00c3d938)
 
+![yoo-joonghyuk-kim-dokja](https://github.com/user-attachments/assets/f538ffe3-9226-4ec7-acaf-720334f6c991)
+
 ![tumblr_9dea624e2ca1598fd0861e35d301345e_4b4443e9_640](https://github.com/user-attachments/assets/f804698c-8e56-408a-8f92-709b1b03d077)
 
 
