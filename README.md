@@ -11,4 +11,6 @@
 ˖　　　壓　　　𓋵࣬ 
 
 𝘪𝘮𝘱𝘳é𝘨𝘯𝘦-𝘮𝘰𝘪 𝘦𝘵 𝘢𝘱𝘱𝘦𝘭𝘭𝘦-𝘮𝘰𝘪 𝘮𝘰𝘯 𝘢𝘮𝘰𝘶𝘳 ?
-![tumblr_8af38de204995253185a1eb0091d9a7f_8a4e682e_500](https://github.com/user-attachments/assets/8ba4aaa5-d5e9-42dc-b038-037104fa1e51)
+﹒﹒ la sincérité touche toujours
+𝘦𝘵 𝘱𝘢𝘴 𝘶𝘯 𝘱𝘢𝘴 𝘦𝘯 𝘢𝘳𝘳𝘪è𝘳𝘦 ! ⋆
+![tumblr_44d8c87d0d976c2dfe52d9de3aae9e47_0da4e580_1280](https://github.com/user-attachments/assets/de19a9af-91ce-48c1-8d9b-f301c8ce25c7)
