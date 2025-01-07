@@ -16,4 +16,4 @@
 
 𝘦𝘵 𝘱𝘢𝘴 𝘶𝘯 𝘱𝘢𝘴 𝘦𝘯 𝘢𝘳𝘳𝘪è𝘳𝘦 ! ⋆
 ![tumblr_f52b0b04e759397411e15fa363cbb523_f505c904_2048](https://github.com/user-attachments/assets/dbefe616-2716-4df9-b11f-10e06a313f4e)![tumblr_9e72b83defa07fca3fed7983d7e8184a_6afaa3cb_2048](https://github.com/user-attachments/assets/54710909-a9b4-494b-aa90-d7b8d72c0dda)
-
+JOONGDOK NATION RISE UP
