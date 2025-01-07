@@ -15,3 +15,5 @@
 ﹒﹒ la sincérité touche toujours
 
 𝘦𝘵 𝘱𝘢𝘴 𝘶𝘯 𝘱𝘢𝘴 𝘦𝘯 𝘢𝘳𝘳𝘪è𝘳𝘦 ! ⋆
+
+![2632059_0293e](https://github.com/user-attachments/assets/c2c4c96e-103e-41cb-93e0-b45e404de078)
