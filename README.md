@@ -1,5 +1,5 @@
 ![tumblr_15ab4280a9861c044ff28f8c3732ea90_2ad912a8_2048](https://github.com/user-attachments/assets/f3f409db-0b2d-4b22-8bd7-1e030f0eee87)
-![IMG_8526](https://github.com/user-attachments/assets/1088706d-c454-4da9-9c79-ddfe59b54a02)
+![IMG_8529](https://github.com/user-attachments/assets/fbb85384-1291-4e31-90b7-07ab47cc9ff0)
 
 <h1 align="center">˖　　　愛福　　　𓋵࣬
 
@@ -21,6 +21,5 @@
 
 𝘦𝘵 𝘱𝘢𝘴 𝘶𝘯 𝘱𝘢𝘴 𝘦𝘯 𝘢𝘳𝘳𝘪è𝘳𝘦 ! ⋆
 
-![IMG_8518](https://github.com/user-attachments/assets/8451b7cc-ac2a-4778-8d15-930caba309f8)
-
+![IMG_8530](https://github.com/user-attachments/assets/234bf9a9-4ee7-497c-9e30-0795c4a088cd)
 ![tumblr_15ab4280a9861c044ff28f8c3732ea90_2ad912a8_2048](https://github.com/user-attachments/assets/c239234f-4f50-4674-9c58-811c496f2c6e)
