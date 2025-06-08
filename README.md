@@ -1,5 +1,6 @@
-![IMG_1338](https://github.com/user-attachments/assets/0881602d-db41-41cc-8952-ac72710ab406)
+![IMG_1339](https://github.com/user-attachments/assets/08fad569-03aa-4d3a-954a-ef00e7d609bc)
 ***
+
 ![IMG_1319](https://github.com/user-attachments/assets/eb01d561-b425-438c-8ca4-02f5d0004bc5)
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀────── [𝘐𝘕𝘍𝘖](https://t.me/autopsykiss)ㅤㅤㅤ☰ㅤㅤㅤ[𝘊𝘈𝘙𝘙𝘋](https://mothereater.carrd.co) ──────
 
