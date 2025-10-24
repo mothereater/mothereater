@@ -1,4 +1,5 @@
-<img width="1000" height="148" alt="image" src="https://github.com/user-attachments/assets/e9de7f54-072d-43b0-a2eb-1035624a9920" />
+<img width="544" height="58" alt="image" src="https://github.com/user-attachments/assets/25e47ab8-1d70-4123-ab63-25f799557818" />
+
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![](https://komarev.com/ghpvc/?username=mothereater&color=D8BFD8&style=plastic&label=⠀☆⠀&base=1000)⠀
 
@@ -8,4 +9,3 @@
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![tumblr_f599a6492b465830abce3fe6515a0d88_804bdcdf_75](https://github.com/user-attachments/assets/d2e2ffb2-28ae-46c0-bb3c-5b2860a76834)
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
-<img width="1000" height="160" alt="image" src="https://github.com/user-attachments/assets/cb906ef6-eb66-44ba-9aeb-4bbffca4fd85" />
