@@ -2,5 +2,4 @@
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ [info](https://t.me/autopsykiss)ㅤㅤㅤ☰ㅤㅤㅤ[carrd](https://mothereater.carrd.co) 
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![tumblr_6dbab08b89c5c399ea5f26c4507a8562_db6362d3_75](https://github.com/user-attachments/assets/fb044b5b-581f-49c4-a71a-203880c3de48)![tumblr_6c253751f9309880d1b7f6dc0679447b_93533bae_75](https://github.com/user-attachments/assets/f7525981-fb64-436f-a81a-e65f6296021e)![tumblr_97d895fb1440a2e36a379f3bddb04946_8342e562_75](https://github.com/user-attachments/assets/f280c016-fa59-46fa-abd8-58a95c59ff42)
-
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![tumblr_a50e14708f4e603acf204da08442d19c_291c29b1_100](https://github.com/user-attachments/assets/9f4d8205-fba8-46f9-89da-dda5397b7aab)![tumblr_e462dbe2629f499fa952ec505e7c516b_758d5301_100](https://github.com/user-attachments/assets/925134e6-af49-474a-a454-8c7d0e90920b)![tumblr_f599a6492b465830abce3fe6515a0d88_804bdcdf_75](https://github.com/user-attachments/assets/d2e2ffb2-28ae-46c0-bb3c-5b2860a76834)
