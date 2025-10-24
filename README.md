@@ -1,6 +1,8 @@
 <div align="center">
   <img width="500" height="43" alt="image" src="https://github.com/user-attachments/assets/44f99388-0bb7-4f98-8ccb-8f9c13db91a5" />
 
+<img width="1256" height="1264" alt="image" src="https://github.com/user-attachments/assets/f2ce6cba-d422-4d23-9744-082c5c1ed42f" />
+
   
 [info](https://t.me/autopsykiss)ㅤㅤㅤ☰ㅤㅤㅤ[carrd](https://mothereater.carrd.co) 
 
