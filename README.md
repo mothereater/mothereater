@@ -1,6 +1,6 @@
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![](https://komarev.com/ghpvc/?username=mothereater&color=D8BFD8&style=plastic&label=⠀☆⠀&base=1000)⠀
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![tumblr_43a56614053ae589f36567c8022ab818_69124be3_640](https://github.com/user-attachments/assets/36b8631c-a04f-4c58-b504-4edd00f533f8)
+![tumblr_b4a570573ac67b8b4e1a01d20d485bba_ed7d212d_400](https://github.com/user-attachments/assets/10e927f1-8805-438d-91b4-8febca467dec)ㅤㅤㅤ![tumblr_05d63dd523ee366e122bcb44250ffe86_0bc19f0a_400](https://github.com/user-attachments/assets/09410c9c-9947-43ba-b666-ceea4810f676)
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ [info](https://t.me/autopsykiss)ㅤㅤㅤ☰ㅤㅤㅤ[carrd](https://mothereater.carrd.co) 
 
