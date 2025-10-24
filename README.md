@@ -1,7 +1,7 @@
 <div align="center">
   <img width="500" height="43" alt="image" src="https://github.com/user-attachments/assets/44f99388-0bb7-4f98-8ccb-8f9c13db91a5" />
 
-  ![](https://komarev.com/ghpvc/?username=mothereater&color=D8BFD8&style=plastic&label=⠀☆⠀&base=1000)
+![](https://komarev.com/ghpvc/?username=mothereater&color=D8BFD8&style=plastic&label=⠀☆⠀&base=1000)
   
 [info](https://t.me/autopsykiss)ㅤㅤㅤ☰ㅤㅤㅤ[carrd](https://mothereater.carrd.co) 
 
