@@ -1,4 +1,4 @@
-<img width="1200" height="300" alt="image" src="https://github.com/user-attachments/assets/6b37b183-3e21-4cf2-a065-fd29d6e5dd02" />
+<img width="1280" height="429" alt="image" src="https://github.com/user-attachments/assets/be6f378c-ebdd-462e-aa6e-f8ab02b5b775" />
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![](https://komarev.com/ghpvc/?username=mothereater&color=D8BFD8&style=plastic&label=⠀☆⠀&base=1000)⠀
 
