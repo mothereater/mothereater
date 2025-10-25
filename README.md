@@ -18,7 +18,3 @@
   <img width="100" height="100" alt="image" src="https://github.com/user-attachments/assets/052b2191-2006-469b-a89e-60ae40c1f8eb" />
 
 ㅤ![](https://komarev.com/ghpvc/?username=mothereater&color=D8BFD8&style=plastic&label=⠀☆⠀&base=1000) ⤶
-
-
-
-<img width="1988" height="3072" alt="image" src="https://github.com/user-attachments/assets/cbda7ea4-263a-413f-820d-7cb287787c93" />
