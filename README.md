@@ -8,7 +8,7 @@
   
 [info](https://t.me/autopsykiss)ㅤㅤㅤ☰ㅤㅤㅤ[carrd](https://mothereater.carrd.co) 
 
-![tumblr_f599a6492b465830abce3fe6515a0d88_804bdcdf_75](https://github.com/user-attachments/assets/d2e2ffb2-28ae-46c0-bb3c-5b2860a76834) ![tumblr_d1dc500e0d39a3a38dcfc4914752813a_8a6f627e_75](https://github.com/user-attachments/assets/7f6b4319-d9cb-49f4-96ed-d3e8f17d84b1)
+![tumblr_f599a6492b465830abce3fe6515a0d88_804bdcdf_75](https://github.com/user-attachments/assets/d2e2ffb2-28ae-46c0-bb3c-5b2860a76834) ![tumblr_ca01b4bde0808bf3584ef4cbb3dd0f76_6694e173_75](https://github.com/user-attachments/assets/73cd653a-2e6b-4a00-bea9-9f37deea7bd0)
 
 <div align="center">
   <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/7e8dedc9-9b1a-4877-bb23-b623eea7a948" /> <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/fa5ffbc7-546d-4cf4-bda9-eea41deee4d3" /> <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/bf84aaf9-4c5f-48f8-92c0-a12fbb5dbe17" /> 
