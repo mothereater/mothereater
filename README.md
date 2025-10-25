@@ -15,6 +15,7 @@
 
 
 <div align="left">
-  <img width="100" height="100" alt="image" src="https://github.com/user-attachments/assets/052b2191-2006-469b-a89e-60ae40c1f8eb" />
+  <img width="100" height="100" alt="image" src="https://github.com/user-attachments/assets/052b2191-2006-469b-a89e-60ae40c1f8eb" /> <img width="200" height="100" alt="tumblr_198cc3188321d250be4fcf1142dfcf62_fa08a1d2_540" src="https://github.com/user-attachments/assets/eecc2d9f-54b6-427c-aa65-ffbb3d3464fc" />
 
 ㅤ![](https://komarev.com/ghpvc/?username=mothereater&color=D8BFD8&style=plastic&label=⠀☆⠀&base=1000) ⤶
+
