@@ -3,7 +3,8 @@
 
 
 <div align="center">
-  <img width="320" height="180" alt="image" src="https://github.com/user-attachments/assets/55558e0f-2403-4a36-a43f-180e296302ec" />
+  <img width="320" height="180" alt="image" src="https://github.com/user-attachments/assets/55558e0f-2403-4a36-a43f-180e296302ec" /> <img width="320" height="180" alt="image" src="https://github.com/user-attachments/assets/e849ab5a-af10-4474-818e-c54235bbb211" />
+
 
   
 [info](https://t.me/autopsykiss)ㅤㅤㅤ☰ㅤㅤㅤ[carrd](https://mothereater.carrd.co) 
