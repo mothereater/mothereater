@@ -16,7 +16,7 @@
 
 
 <div align="left">
-<img width="100" height="100" alt="казик" src="https://github.com/user-attachments/assets/d7744a30-b0c8-4f04-96d5-c97b1fe2d535" />ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤ<img width="100" height="100" alt="tumblr_43efd638876647bd63210652240d20df_dd44cd69_1280" src="https://github.com/user-attachments/assets/b14e28e1-47f3-4c4b-9f89-4d5177613a4d" /> ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img width="100" height="100" alt="5575" src="https://github.com/user-attachments/assets/39489be3-bdb0-48bb-9053-784badbc5615" />
+<img width="100" height="100" alt="казик" src="https://github.com/user-attachments/assets/d7744a30-b0c8-4f04-96d5-c97b1fe2d535" />ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤ<img width="100" height="100" alt="tumblr_43efd638876647bd63210652240d20df_dd44cd69_1280" src="https://github.com/user-attachments/assets/b14e28e1-47f3-4c4b-9f89-4d5177613a4d" /> ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img width="100" height="100" alt="5575" src="https://github.com/user-attachments/assets/39489be3-bdb0-48bb-9053-784badbc5615" />
 
 
 ㅤ![](https://komarev.com/ghpvc/?username=mothereater&color=26D8D1&style=plastic&label=⠀☆⠀&base=1000) ⤶ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤ. .ㅤㅤ[atabook](https://mothereater.atabook.org/)
