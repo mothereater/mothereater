@@ -38,6 +38,7 @@
 ㅤ
 ㅤ
 ㅤ
-ㅤ____
+____
+  
 <div align="center">  <img width="200" height="200" alt="tumblr_0ecf7ac4945664905a8dbf853fd4effb_78472460_1280" src="https://github.com/user-attachments/assets/88e91a9c-dc98-4a42-839e-f4b9f192c196" />
 <div align="center"> sign ata!
