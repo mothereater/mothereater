@@ -8,7 +8,8 @@
   
 [info](https://t.me/autopsykiss)ㅤㅤㅤ☰ㅤㅤㅤ[carrd](https://mothereater.carrd.co) 
 
-ㅤ![tumblr_f599a6492b465830abce3fe6515a0d88_804bdcdf_75](https://github.com/user-attachments/assets/d2e2ffb2-28ae-46c0-bb3c-5b2860a76834) ![tumblr_2d365363ef722b48645d21576c310197_f6ed9c2e_75](https://github.com/user-attachments/assets/039e4ed3-d13b-4bf2-a5ab-51d5b8e7260d)
+ㅤ![tumblr_120c669e38083ce23f0fb0c862810cb5_712ed8a9_250](https://github.com/user-attachments/assets/54b526eb-99ff-46fa-aa06-53915282e2d3)
+ㅤ ![tumblr_2d365363ef722b48645d21576c310197_f6ed9c2e_75](https://github.com/user-attachments/assets/039e4ed3-d13b-4bf2-a5ab-51d5b8e7260d)
 
 <div align="center">
   
