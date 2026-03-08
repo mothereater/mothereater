@@ -11,7 +11,7 @@
 ㅤ![tumblr_f599a6492b465830abce3fe6515a0d88_804bdcdf_75](https://github.com/user-attachments/assets/d2e2ffb2-28ae-46c0-bb3c-5b2860a76834) ![tumblr_2d365363ef722b48645d21576c310197_f6ed9c2e_75](https://github.com/user-attachments/assets/039e4ed3-d13b-4bf2-a5ab-51d5b8e7260d)
 
 <div align="center">
-![tumblr_be82438683120ad92327599f91b4dd61_bc85c84a_100](https://github.com/user-attachments/assets/19392bf2-069a-4f05-a408-6be9034a7d60)
+124 
  /> <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/fa5ffbc7-546d-4cf4-bda9-eea41deee4d3" /> <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/bf84aaf9-4c5f-48f8-92c0-a12fbb5dbe17" /> 
 
 
@@ -20,3 +20,6 @@
 
 ㅤ![](https://komarev.com/ghpvc/?username=mothereater&color=D8BFD8&style=plastic&label=⠀☆⠀&base=1000) ⤶ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤ. .ㅤㅤ[atabook](https://mothereater.atabook.org/)
 
+
+
+<img width="99" height="56" alt="image" src="https://64.media.tumblr.com/be82438683120ad92327599f91b4dd61/aa3450e73c80eefc-f0/s100x200/bc85c84a1d84dab6fd70701b4112d5d22e865212.gifv"
