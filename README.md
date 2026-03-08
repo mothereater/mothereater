@@ -18,7 +18,7 @@
 <div align="center"> 
 
 ![tumblr_a6c2c8b04f91e3debfd65e1ca12ce09f_b1dc5b53_75](https://github.com/user-attachments/assets/e9902e1d-ea20-4a18-8908-060a543dc77e)
-ㅤ ![uex](https://github.com/user-attachments/assets/a14a0abc-88c1-472a-9765-5d2367818db1)
+ㅤ ![tumblr_fa83127d94266cefae2226157989cdd7_7d18ec09_100](https://github.com/user-attachments/assets/1f56b5c6-e8f8-4680-bdf0-7b381fb1fbe5)
 ㅤ ![tumblr_2d365363ef722b48645d21576c310197_f6ed9c2e_75](https://github.com/user-attachments/assets/039e4ed3-d13b-4bf2-a5ab-51d5b8e7260d)
 
 <div align="center">
