@@ -3,7 +3,7 @@
 
 
 <div align="center">
-<img width="1000" height="350" alt="мэйн" src="https://github.com/user-attachments/assets/eb8bb478-01b8-475c-aa14-7219e77ad604" />
+<img width="800" height="250" alt="мэйн" src="https://github.com/user-attachments/assets/eb8bb478-01b8-475c-aa14-7219e77ad604" />
 
   
 [info](https://t.me/autopsykiss)ㅤㅤㅤ☰ㅤㅤㅤ[carrd](https://mothereater.carrd.co) 
