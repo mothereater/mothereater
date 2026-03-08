@@ -9,7 +9,7 @@
 ㅤ
 ㅤ
 
-ㅤㅤ[info](https://t.me/autopsykiss)ㅤㅤㅤ☰ㅤㅤㅤ[carrd](https://mothereater.carrd.co) 
+ㅤㅤ[info](https://t.me/autopsykiss)ㅤㅤㅤ☰ㅤㅤㅤ[carrd]([https://mothereaters.carrd.co/) 
 
 ㅤ
 ㅤ
