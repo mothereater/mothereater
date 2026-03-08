@@ -9,8 +9,7 @@
 [info](https://t.me/autopsykiss)ㅤㅤㅤ☰ㅤㅤㅤ[carrd](https://mothereater.carrd.co) 
 
 <div align="center"> 
-  
-  ![tumblr_e0b383f6ebb4d7d28a70cc039990df8b_b6385819_75](https://github.com/user-attachments/assets/6384c081-929b-40e1-8d17-5eea8fa0ac1b)
+
 ㅤ![tumblr_120c669e38083ce23f0fb0c862810cb5_712ed8a9_250](https://github.com/user-attachments/assets/54b526eb-99ff-46fa-aa06-53915282e2d3)
 ㅤ ![tumblr_2d365363ef722b48645d21576c310197_f6ed9c2e_75](https://github.com/user-attachments/assets/039e4ed3-d13b-4bf2-a5ab-51d5b8e7260d)
 
@@ -23,7 +22,8 @@
 <img width="105" height="100" alt="казик" src="https://github.com/user-attachments/assets/d7744a30-b0c8-4f04-96d5-c97b1fe2d535" /> ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img width="100" height="100" alt="tumblr_43efd638876647bd63210652240d20df_dd44cd69_1280" src="https://github.com/user-attachments/assets/b14e28e1-47f3-4c4b-9f89-4d5177613a4d" /> ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img width="100" height="100" alt="5575" src="https://github.com/user-attachments/assets/39489be3-bdb0-48bb-9053-784badbc5615" />
 
 
-ㅤ![](https://komarev.com/ghpvc/?username=mothereater&color=007473&style=for-the-badge&label=⠀☆⠀&base=1000) ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤ[atabook](https://mothereater.atabook.org/)
+ㅤ![](https://komarev.com/ghpvc/?username=mothereater&color=007473&style=for-the-badge&label=⠀☆⠀&base=1000) ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![tumblr_e0b383f6ebb4d7d28a70cc039990df8b_b6385819_75](https://github.com/user-attachments/assets/e841bd03-1e0d-400a-997b-4a52f2a5fc56)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤ[atabook](https://mothereater.atabook.org/)
 
 
 
