@@ -3,7 +3,9 @@
 
 
 <div align="center">
-<img width="150" height="150" alt="перо" src="https://github.com/user-attachments/assets/d8220f74-7de7-4a6a-8997-74e1913efacc" /> <img width="150" height="150" alt="2" src="https://github.com/user-attachments/assets/bb678416-b1fc-4a1d-a6b1-8df8437df397" /> <img width="160" height="160" alt="1" src="https://github.com/user-attachments/assets/92716bec-45f7-47e1-b3bb-90af59077d03" /> <img width="150" height="150" alt="3" src="https://github.com/user-attachments/assets/b687a059-f9ed-4b8e-9841-41659522e51e" /> <img width="150" height="150" alt="кубики" src="https://github.com/user-attachments/assets/4d538982-9bf7-49d6-bc5e-c03caeb618b5" />
+<img width="150" height="150" alt="перо" src="https://github.com/user-attachments/assets/d8220f74-7de7-4a6a-8997-74e1913efacc" /> ㅤㅤ <img width="150" height="150" alt="2" src="https://github.com/user-attachments/assets/bb678416-b1fc-4a1d-a6b1-8df8437df397" /> <img width="160" height="160" alt="1" src="https://github.com/user-attachments/assets/92716bec-45f7-47e1-b3bb-90af59077d03" /> <img width="150" height="150" alt="3" src="https://github.com/user-attachments/assets/b687a059-f9ed-4b8e-9841-41659522e51e" /> ㅤㅤ <img width="150" height="150" alt="кубики" src="https://github.com/user-attachments/assets/4d538982-9bf7-49d6-bc5e-c03caeb618b5" />
+
+
 
   
 [info](https://t.me/autopsykiss)ㅤㅤㅤ☰ㅤㅤㅤ[carrd](https://mothereater.carrd.co) 
@@ -16,6 +18,7 @@
 <div align="center">
   
 ![tumblr_be82438683120ad92327599f91b4dd61_bc85c84a_100](https://github.com/user-attachments/assets/7574e37d-869e-441e-af2c-6613ed4219f4)![tumblr_d882f4e5149d79f0293bc37f8d6e9137_bdae3dc7_100](https://github.com/user-attachments/assets/e559677c-55c4-44a0-9ddc-7eee2d8ba44a)![tumblr_caecfa9e8b44a2621968b0e089e441dc_1f1d6ab4_100](https://github.com/user-attachments/assets/7a98589d-9aee-4af2-bfc5-2e5595284c6e)
+
 
 
 <div align="left">
