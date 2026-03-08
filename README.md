@@ -3,7 +3,7 @@
 
 
 <div align="center">
-<img width="130" height="130" alt="1" src="https://github.com/user-attachments/assets/1f046e47-1a83-4858-b278-9d1d612f5e05" /> <img width="400" height="145" alt="tumblr_b1d00688d42fa8457166a9b74e8e9525_6d21a2f8_1280" src="https://github.com/user-attachments/assets/3e1e74b5-ebd2-474b-b8cb-e02e8fd05a66" /> <img width="130" height="130" alt="2" src="https://github.com/user-attachments/assets/26637384-af73-4605-beda-16ff05102782" />
+<img width="400" height="400" alt="0" src="https://github.com/user-attachments/assets/e07f9fcb-9874-4aad-9344-65d00c623f0d" /> <img width="736" height="736" alt="9" src="https://github.com/user-attachments/assets/c1ee22cf-a4a7-4f07-941d-de16adb8151f" />
 
   
 [info](https://t.me/autopsykiss)ㅤㅤㅤ☰ㅤㅤㅤ[carrd](https://mothereater.carrd.co) 
