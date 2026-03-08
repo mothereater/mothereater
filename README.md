@@ -10,8 +10,8 @@
 ㅤ
 
 ㅤㅤ[info](https://t.me/autopsykiss)ㅤㅤㅤ☰ㅤㅤㅤ[carrd](https://mothereater.carrd.co) 
-ㅤ
-ㅤ
+
+
 <div align="center"> 
 
 ![tumblr_a6c2c8b04f91e3debfd65e1ca12ce09f_b1dc5b53_75](https://github.com/user-attachments/assets/e9902e1d-ea20-4a18-8908-060a543dc77e)
