@@ -3,7 +3,7 @@
 
 
 <div align="center">
-<img width="400" height="400" alt="перо" src="https://github.com/user-attachments/assets/d8220f74-7de7-4a6a-8997-74e1913efacc" /> <img width="400" height="400" alt="звезда" src="https://github.com/user-attachments/assets/7737fdb7-e9eb-45d1-aa8f-3dd566088a29" /> <img width="400" height="400" alt="кубики" src="https://github.com/user-attachments/assets/4d538982-9bf7-49d6-bc5e-c03caeb618b5" />
+<img width="150" height="150" alt="перо" src="https://github.com/user-attachments/assets/d8220f74-7de7-4a6a-8997-74e1913efacc" /> <img width="150" height="150" alt="звезда" src="https://github.com/user-attachments/assets/7737fdb7-e9eb-45d1-aa8f-3dd566088a29" /> <img width="150" height="150" alt="кубики" src="https://github.com/user-attachments/assets/4d538982-9bf7-49d6-bc5e-c03caeb618b5" />
 
   
 [info](https://t.me/autopsykiss)ㅤㅤㅤ☰ㅤㅤㅤ[carrd](https://mothereater.carrd.co) 
