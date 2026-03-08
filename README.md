@@ -3,7 +3,7 @@
 
 
 <div align="center">
-<img width="150" height="150" alt="перо" src="https://github.com/user-attachments/assets/d8220f74-7de7-4a6a-8997-74e1913efacc" /> ㅤㅤ <img width="150" height="150" alt="2" src="https://github.com/user-attachments/assets/bb678416-b1fc-4a1d-a6b1-8df8437df397" /> <img width="160" height="160" alt="1" src="https://github.com/user-attachments/assets/92716bec-45f7-47e1-b3bb-90af59077d03" /> <img width="150" height="150" alt="3" src="https://github.com/user-attachments/assets/b687a059-f9ed-4b8e-9841-41659522e51e" /> ㅤㅤ <img width="150" height="150" alt="кубики" src="https://github.com/user-attachments/assets/4d538982-9bf7-49d6-bc5e-c03caeb618b5" />
+<img width="100" height="100" alt="перо" src="https://github.com/user-attachments/assets/d8220f74-7de7-4a6a-8997-74e1913efacc" /> ㅤㅤㅤㅤ <img width="150" height="150" alt="2" src="https://github.com/user-attachments/assets/bb678416-b1fc-4a1d-a6b1-8df8437df397" /> <img width="160" height="160" alt="1" src="https://github.com/user-attachments/assets/92716bec-45f7-47e1-b3bb-90af59077d03" /> <img width="150" height="150" alt="3" src="https://github.com/user-attachments/assets/b687a059-f9ed-4b8e-9841-41659522e51e" /> ㅤㅤㅤㅤ <img width="100" height="100" alt="кубики" src="https://github.com/user-attachments/assets/4d538982-9bf7-49d6-bc5e-c03caeb618b5" />
 
 
 
