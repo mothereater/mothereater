@@ -1,6 +1,7 @@
 <div align="center">
 <img width="2048" height="266" alt="tumblr_4e8c04bc7befe3ceb0db916837446bd9_f451e4ac_2048" src="https://github.com/user-attachments/assets/c731bad5-9c7d-480d-9c3f-9128c529e0fb" />
 
+ㅤ
 
 <div align="center">
 <img width="100" height="100" alt="перо" src="https://github.com/user-attachments/assets/d8220f74-7de7-4a6a-8997-74e1913efacc" /> ㅤㅤ ㅤㅤ <img width="160" height="160" alt="2" src="https://github.com/user-attachments/assets/bb678416-b1fc-4a1d-a6b1-8df8437df397" /> <img width="170" height="170" alt="1" src="https://github.com/user-attachments/assets/92716bec-45f7-47e1-b3bb-90af59077d03" /> <img width="160" height="160" alt="3" src="https://github.com/user-attachments/assets/b687a059-f9ed-4b8e-9841-41659522e51e" /> ㅤㅤ ㅤㅤ <img width="100" height="100" alt="кубики" src="https://github.com/user-attachments/assets/4d538982-9bf7-49d6-bc5e-c03caeb618b5" />
@@ -39,4 +40,4 @@
 ㅤ
 ㅤ
 <div align="center">  <img width="200" height="200" alt="tumblr_0ecf7ac4945664905a8dbf853fd4effb_78472460_1280" src="https://github.com/user-attachments/assets/88e91a9c-dc98-4a42-839e-f4b9f192c196" />
-<div align="center"> погладьте беднягу
+<div align="center"> sign ata!
