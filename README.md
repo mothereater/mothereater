@@ -32,7 +32,4 @@
 
 <gif src="[https://example.com/image.png](https://64.media.tumblr.com/be82438683120ad92327599f91b4dd61/aa3450e73c80eefc-f0/s100x200/bc85c84a1d84dab6fd70701b4112d5d22e865212.gifv)" width="200" height="100">
 
-____
-
-<img width="2048" height="82" alt="tumblr_f0a868cf9d54fa179ec99e30e5ed3c26_f20e2904_2048" src="https://github.com/user-attachments/assets/bc7c827f-e3f6-4fdd-9938-dcd462ff90cc" />
-
+![tumblr_abe335dc83a89333fc1fc5e275a17261_eff69cae_2048](https://github.com/user-attachments/assets/7beca235-83f8-429d-a08e-d1e7a1957971)
