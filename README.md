@@ -9,7 +9,7 @@
 ㅤ
 ㅤ
 
-![tumblr_a6c2c8b04f91e3debfd65e1ca12ce09f_b1dc5b53_75](https://github.com/user-attachments/assets/e9902e1d-ea20-4a18-8908-060a543dc77e)ㅤㅤ[info](https://t.me/autopsykiss)ㅤㅤㅤ☰ㅤㅤㅤ[carrd](https://mothereaters.carrd.co/) ㅤ ![tumblr_2d365363ef722b48645d21576c310197_f6ed9c2e_75](https://github.com/user-attachments/assets/039e4ed3-d13b-4bf2-a5ab-51d5b8e7260d)
+![tumblr_a6c2c8b04f91e3debfd65e1ca12ce09f_b1dc5b53_75](https://github.com/user-attachments/assets/e9902e1d-ea20-4a18-8908-060a543dc77e)ㅤㅤ[𝐈𝐍𝐅𝐎](https://t.me/autopsykiss)ㅤㅤㅤ☰ㅤㅤㅤ[𝐂𝐀𝐑𝐑𝐃](https://mothereaters.carrd.co/) ㅤ ![tumblr_2d365363ef722b48645d21576c310197_f6ed9c2e_75](https://github.com/user-attachments/assets/039e4ed3-d13b-4bf2-a5ab-51d5b8e7260d)
 
 ㅤ
 ㅤ
