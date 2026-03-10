@@ -26,7 +26,7 @@
 
 
 ㅤ![](https://komarev.com/ghpvc/?username=your-github-mothereater&color=007473&style=for-the-badge&label=⠀☆⠀&base=2198)ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![tumblr_e0b383f6ebb4d7d28a70cc039990df8b_b6385819_75](https://github.com/user-attachments/assets/e841bd03-1e0d-400a-997b-4a52f2a5fc56)![6](https://github.com/user-attachments/assets/98886014-e48e-4829-bfb1-700627237fdb)![tumblr_a03de846dcdffc5edf84f418b2a05536_f068950f_75](https://github.com/user-attachments/assets/15df1ebe-bb33-4765-8d0d-1bd59533d00e)
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[𝐀𝐓𝐀𝐁𝐎𝐎𝐊](https://mothereater.atabook.org/)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[𝐀𝐓𝐀𝐁𝐎𝐎𝐊](https://mothereater.atabook.org/)
 
 
 
