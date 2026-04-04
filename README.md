@@ -37,3 +37,5 @@
 
 
 $\color{#eb4967}{\textsf{checking smth rq}}$
+<img width="498" height="307" alt="image" src="https://github.com/user-attachments/assets/09930ae7-5695-4246-9ed8-a2ee2f0502e1" />
+
