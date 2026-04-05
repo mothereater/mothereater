@@ -38,4 +38,4 @@
 
 $\color{#eb4967}{\textsf{checking smth rq}}$ 
 
-<sub>[info](https://t.me/autopsykiss)</sub>　﹒　<sub>[carrd](https://mothereaters.carrd.co/)</sub>　﹒　<sub>[ata]([https://t.me/autopsykiss](https://mothereater.atabook.org/)</sub>
+<sub>[info](https://t.me/autopsykiss)</sub>　﹒　<sub>[carrd](https://mothereaters.carrd.co/)</sub>　﹒　<sub>[ata](https://mothereater.atabook.org/)</sub>
