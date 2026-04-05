@@ -37,6 +37,6 @@
 
 
 
-$\color{#eb4967}{\textsf{checking smth rq}}$  its a wip pleade dont look im shy
+$\color{#eb4967}{\textsf{checking smth rq}}$  its a wip please dont look im shy
 
 
