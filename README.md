@@ -36,4 +36,6 @@
 
 
 
-$\color{#eb4967}{\textsf{checking smth rq}}$
+$\color{#eb4967}{\textsf{checking smth rq}}$ 
+
+<sub>[info](https://t.me/autopsykiss)</sub>
