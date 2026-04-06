@@ -38,3 +38,4 @@
 $\color{#eb4967}{\textsf{checking smth rq}}$  its a wip please dont look im shy
 
 
+<img width="500" height="122" alt="tumblr_d8e6e915749a5d28d409eda76c0c76b8_a339a0bc_1280" src="https://github.com/user-attachments/assets/223cf4f7-7286-41a8-8853-a87d10d31af5" />
