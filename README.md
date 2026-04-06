@@ -1,4 +1,9 @@
 <div align="center">
+    
+![](https://komarev.com/ghpvc/?username=your-github-mothereater&color=5a5a5a&style=plastic&label=⠀☆⠀&base=2198)
+
+
+<div align="center">
 <img width="2048" height="266" alt="tumblr_4e8c04bc7befe3ceb0db916837446bd9_f451e4ac_2048" src="https://github.com/user-attachments/assets/c731bad5-9c7d-480d-9c3f-9128c529e0fb" />
 
 
@@ -24,13 +29,6 @@
 
 <div align="left">
 <img width="105" height="115" alt="казик" src="https://github.com/user-attachments/assets/d7744a30-b0c8-4f04-96d5-c97b1fe2d535" /> ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img width="100" height="100" alt="tumblr_43efd638876647bd63210652240d20df_dd44cd69_1280" src="https://github.com/user-attachments/assets/b14e28e1-47f3-4c4b-9f89-4d5177613a4d" /> ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img width="100" height="100" alt="5575" src="https://github.com/user-attachments/assets/39489be3-bdb0-48bb-9053-784badbc5615" />
-
-
-ㅤ![](https://komarev.com/ghpvc/?username=your-github-mothereater&color=5a5a5a&style=plastic&label=⠀☆⠀&base=2198)ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![tumblr_e0b383f6ebb4d7d28a70cc039990df8b_b6385819_75](https://github.com/user-attachments/assets/e841bd03-1e0d-400a-997b-4a52f2a5fc56)![6](https://github.com/user-attachments/assets/98886014-e48e-4829-bfb1-700627237fdb)![tumblr_a03de846dcdffc5edf84f418b2a05536_f068950f_75](https://github.com/user-attachments/assets/15df1ebe-bb33-4765-8d0d-1bd59533d00e)
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-
-
-
 
 
 
