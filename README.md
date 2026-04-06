@@ -42,4 +42,4 @@ $\color{#eb4967}{\textsf{checking smth rq}}$  its a wip please dont look im shy
 
 <div align="left">
     
-![tumblr_93723850dbda4b627490493b16faf819_a19a12a1_400](https://github.com/user-attachments/assets/dd4e5fdc-b892-4a65-8136-4116a6c95ef1)
+![tumblr_93723850dbda4b627490493b16faf819_a19a12a1_400](https://github.com/user-attachments/assets/dd4e5fdc-b892-4a65-8136-4116a6c95ef1) 123456789098765к4у34567890987654323456789876
