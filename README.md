@@ -9,8 +9,9 @@
 ㅤ
 ㅤ
 <div align="center">
+<h6 align> 
   
-<sub>[info](https://t.me/autopsykiss)</sub>　﹒　<sub>[carrd](https://mothereaters.carrd.co/)</sub>　﹒　<sub>[ata](https://mothereater.atabook.org/)</sub>
+[info](https://t.me/autopsykiss)　﹒　[carrd](https://mothereaters.carrd.co/)　﹒　[ata](https://mothereater.atabook.org/)
 
 ㅤ
 ㅤ
