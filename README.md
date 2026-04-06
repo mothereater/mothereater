@@ -22,13 +22,10 @@
 
 ㅤ
 ㅤ
-ㅤ
-
-
 
 <div align="center">
  
- $\color{#D08950}{\textsf{𐂯⠀ ⠀ ⠀ mothereater ⠀ /⠀ ᴖ　roma ⠀໑}}$ ![13](https://github.com/user-attachments/assets/59324aee-5596-4209-a770-967989bcd9ea)
+ $\color{#D08950}{\textsf{𐂯⠀ ⠀ ⠀ mothereater ⠀ 𓋹⠀ ᴖ　roma ⠀໑}}$ ![13](https://github.com/user-attachments/assets/59324aee-5596-4209-a770-967989bcd9ea)
  $\color{#D08950}{\textsf{ა }}$
 
 $\color{#A2623B}{\textsf{ (:̲̅:̲̅:̲̅[̲̅:✙:]̲̅:̲̅:̲̅:̲̅) ⠀ 6teen  russian  𑊁 ｡ she / her  ⠀}}$
