@@ -44,3 +44,6 @@ $\color{#eb4967}{\textsf{checking smth rq}}$  its a wip please dont look im shy
 <div align="center">
     
 ![tumblr_93723850dbda4b627490493b16faf819_a19a12a1_400](https://github.com/user-attachments/assets/dd4e5fdc-b892-4a65-8136-4116a6c95ef1) 
+
+
+<gif align=left width="200" height="200" src="[https://example.com/image.png](https://64.media.tumblr.com/be82438683120ad92327599f91b4dd61/aa3450e73c80eefc-f0/s100x200/bc85c84a1d84dab6fd70701b4112d5d22e865212.gifv)](https://64.media.tumblr.com/93723850dbda4b627490493b16faf819/d8227602cc64ef1e-f3/s640x960/68a31250bb5c6dd21b373d5433c40f6e351da3cf.gifv)"> лалала 
