@@ -11,7 +11,6 @@
 <div align="center">
   
   <h6 align>
-    
     [info](https://t.me/autopsykiss)　﹒　[carrd](https://mothereaters.carrd.co/)　﹒　[ata](https://mothereater.atabook.org/)
 
 ㅤ
