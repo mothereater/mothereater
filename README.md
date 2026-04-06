@@ -39,5 +39,5 @@
 
 $\color{#eb4967}{\textsf{checking smth rq}}$  its a wip please dont look im shy
 
-![tumblr_93723850dbda4b627490493b16faf819_a19a12a1_400](https://github.com/user-attachments/assets/bb67f92a-cfa6-4130-9a59-89faaf9024de)
+![tumblr_93723850dbda4b627490493b16faf819_a19a12a1_400](https://github.com/user-attachments/assets/bb67f92a-cfa6-4130-9a59-89faaf9024de)ㅤㅤㅤайцукенгшщзхэждлорпавыячсмитьбю.ждлорпавыфйцукенгшщзждлорпавычсмитьоблдю
 
