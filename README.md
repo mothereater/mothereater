@@ -31,8 +31,10 @@
 <div align="center">
  
  $\color{#A2623B}{\textsf{𐂯⠀ ⠀ ⠀ mothereater ⠀ /⠀ ᴖ　roma ⠀໑ ა }}$
+
 $\color{#A2623B}{\textsf{ (:̲̅:̲̅:̲̅[̲̅:✙:]̲̅:̲̅:̲̅:̲̅) ⠀ 7teen  russian  𑊁 ｡ she / her  ⠀}}$
 
+$\color{#A2623B}{\textsf{⋅ 　𝖼 × 𝗁　𝖿𝗋𝖾𝖾𝗅𝗒 !　𓏺　𝗈𝖿𝗍𝖾𝗇 𝗈𝖿𝖿𝗍𝖺𝖻　𝗐2𝗂　 ⋅　}}$
 
 
 <div align="center">
