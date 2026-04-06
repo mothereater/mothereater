@@ -7,12 +7,13 @@
 
   　
 <div align="center">
- 
+
 ![tumblr_93723850dbda4b627490493b16faf819_a19a12a1_400](https://github.com/user-attachments/assets/dd4e5fdc-b892-4a65-8136-4116a6c95ef1) 
 ㅤ
 ㅤ
 <div align="center">
-    
+ㅤ
+
 ######  [info](https://t.me/autopsykiss)　　𓈒　　[carrd](https://mothereaters.carrd.co/)　　𓈒　　[ata](https://mothereater.atabook.org/)
 <sub> $\color{#F3D8BA}{\textsf{ㅤ𓄼 ⑅˚ ㅤ　 sign ata!! ‎ ‎‎ ‎ ‎ .ㅤ　 ✧‎‎ }}$<sub>
 ㅤ 
