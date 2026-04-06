@@ -1,10 +1,9 @@
 <div align="center">
-    
+ 
+‎ ‎   
 ‎ ૮ 　‎![](https://komarev.com/ghpvc/?username=your-github-mothereater&color=5a5a5a&style=plastic&label=⠀　🥞　⠀&base=21198) 　‎ა ‎
 
 
-<div align="center">
-<img width="2048" height="266" alt="tumblr_4e8c04bc7befe3ceb0db916837446bd9_f451e4ac_2048" src="https://github.com/user-attachments/assets/c731bad5-9c7d-480d-9c3f-9128c529e0fb" />
 
 
 <div align="center">
