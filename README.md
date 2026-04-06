@@ -4,14 +4,14 @@
 ‎ ૮ 　‎![](https://komarev.com/ghpvc/?username=your-github-mothereater&color=5a5a5a&style=plastic&label=⠀　🥞　⠀&base=21198) 　‎ა ‎
 
 
+
+  　
 <div align="center">
     
 ![tumblr_93723850dbda4b627490493b16faf819_a19a12a1_400](https://github.com/user-attachments/assets/dd4e5fdc-b892-4a65-8136-4116a6c95ef1) 
 
 
 
-<div align="center">
-<img width="100" height="100" alt="перо" src="https://github.com/user-attachments/assets/d8220f74-7de7-4a6a-8997-74e1913efacc" /> ㅤㅤ ㅤㅤ <img width="160" height="160" alt="2" src="https://github.com/user-attachments/assets/bb678416-b1fc-4a1d-a6b1-8df8437df397" /> <img width="170" height="170" alt="1" src="https://github.com/user-attachments/assets/92716bec-45f7-47e1-b3bb-90af59077d03" /> <img width="160" height="160" alt="3" src="https://github.com/user-attachments/assets/b687a059-f9ed-4b8e-9841-41659522e51e" /> ㅤㅤ ㅤㅤ<img width="100" height="100" alt="кубики" src="https://github.com/user-attachments/assets/4d538982-9bf7-49d6-bc5e-c03caeb618b5" />
 
 ㅤ
 ㅤ
