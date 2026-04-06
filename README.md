@@ -28,7 +28,7 @@
 
 <div align="center">
  
- $\color{#F0C050}{\textsf{𐂯⠀ ⠀ ⠀ mothereater ⠀ /⠀ ᴖ　roma ⠀໑ ა }}$
+ $\color{#D08950}{\textsf{𐂯⠀ ⠀ ⠀ mothereater ⠀ /⠀ ᴖ　roma ⠀໑ ა }}$
 
 $\color{#A2623B}{\textsf{ (:̲̅:̲̅:̲̅[̲̅:✙:]̲̅:̲̅:̲̅:̲̅) ⠀ 6teen  russian  𑊁 ｡ she / her  ⠀}}$
 
