@@ -34,6 +34,7 @@
 
 
 <div align="center">
+ 
 $\color{#eb4967}{\textsf{checking smth rq}}$  its a wip please dont look im shy
 
 
