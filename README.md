@@ -1,6 +1,6 @@
 <div align="center">
     
-‎ ૮ 　‎ ![](https://komarev.com/ghpvc/?username=your-github-mothereater&color=5a5a5a&style=plastic&label=⠀☆⠀&base=2198) 　‎ ა ‎
+‎ ૮ 　‎![](https://komarev.com/ghpvc/?username=your-github-mothereater&color=5a5a5a&style=plastic&label=⠀　🌙　⠀&base=2198) 　‎ა ‎
 
 
 <div align="center">
