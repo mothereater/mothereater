@@ -16,10 +16,11 @@
 <div align="center">
     
 ######  [info](https://t.me/autopsykiss)　　𓈒　　[carrd](https://mothereaters.carrd.co/)　　𓈒　　[ata](https://mothereater.atabook.org/)
-
 ㅤ<sub> $\color{#F3D8BA}{\textsf{ㅤ𓄼 ⑅˚ ㅤ　 sign ata!! ‎ ‎‎ ‎ ‎ .ㅤ　 ✧‎‎ }}$<sub>
-ㅤ
-
+ㅤ 
+ 
+ 
+  　
 <div align="center">
  
  $\color{#D08950}{\textsf{𐂯⠀ ⠀ ⠀ mothereater ⠀ 𓋹⠀ ᴖ　roma ⠀໑}}$ ![13](https://github.com/user-attachments/assets/59324aee-5596-4209-a770-967989bcd9ea)
