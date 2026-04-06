@@ -26,8 +26,6 @@
 
 
 
-
-
 <div align="center">
  
  $\color{#A2623B}{\textsf{𐂯⠀ ⠀ ⠀ mothereater ⠀ /⠀ ᴖ　roma ⠀໑ ა }}$
@@ -37,9 +35,3 @@ $\color{#A2623B}{\textsf{ (:̲̅:̲̅:̲̅[̲̅:✙:]̲̅:̲̅:̲̅:̲̅) ⠀ 7t
 $\color{#A2623B}{\textsf{⋅ 　𝖼 × 𝗁　𝖿𝗋𝖾𝖾𝗅𝗒 !　𓏺　𝗈𝖿𝗍𝖾𝗇 𝗈𝖿𝖿𝗍𝖺𝖻　𝗐2𝗂　 ⋅　}}$
 
 
-<div align="center">
- 
-$\color{#eb4967}{\textsf{checking smth rq}}$  its a wip please dont look im shy
-
-
-<img width="300" height="122" alt="tumblr_d8e6e915749a5d28d409eda76c0c76b8_a339a0bc_1280" src="https://github.com/user-attachments/assets/223cf4f7-7286-41a8-8853-a87d10d31af5" />
