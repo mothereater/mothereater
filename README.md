@@ -10,7 +10,7 @@
 ㅤ
 <div align="center">
     
-######  [info](https://t.me/autopsykiss)　﹒　[carrd](https://mothereaters.carrd.co/)　﹒　[ata](https://mothereater.atabook.org/)
+######  [info](https://t.me/autopsykiss)　　𓈒　　[carrd](https://mothereaters.carrd.co/)　　𓈒　　[ata](https://mothereater.atabook.org/)
 
 ㅤ
 ㅤ
