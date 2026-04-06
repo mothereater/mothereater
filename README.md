@@ -26,12 +26,12 @@
 <img width="105" height="115" alt="казик" src="https://github.com/user-attachments/assets/d7744a30-b0c8-4f04-96d5-c97b1fe2d535" /> ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img width="100" height="100" alt="tumblr_43efd638876647bd63210652240d20df_dd44cd69_1280" src="https://github.com/user-attachments/assets/b14e28e1-47f3-4c4b-9f89-4d5177613a4d" /> ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img width="100" height="100" alt="5575" src="https://github.com/user-attachments/assets/39489be3-bdb0-48bb-9053-784badbc5615" />
 
 
-ㅤ![](https://komarev.com/ghpvc/?username=your-github-mothereater&color=007473&style=plastic&label=⠀☆⠀&base=2198)ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![tumblr_e0b383f6ebb4d7d28a70cc039990df8b_b6385819_75](https://github.com/user-attachments/assets/e841bd03-1e0d-400a-997b-4a52f2a5fc56)![6](https://github.com/user-attachments/assets/98886014-e48e-4829-bfb1-700627237fdb)![tumblr_a03de846dcdffc5edf84f418b2a05536_f068950f_75](https://github.com/user-attachments/assets/15df1ebe-bb33-4765-8d0d-1bd59533d00e)
+ㅤ![](https://komarev.com/ghpvc/?username=your-github-mothereater&color=5a5a5a&style=plastic&label=⠀☆⠀&base=2198)ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![tumblr_e0b383f6ebb4d7d28a70cc039990df8b_b6385819_75](https://github.com/user-attachments/assets/e841bd03-1e0d-400a-997b-4a52f2a5fc56)![6](https://github.com/user-attachments/assets/98886014-e48e-4829-bfb1-700627237fdb)![tumblr_a03de846dcdffc5edf84f418b2a05536_f068950f_75](https://github.com/user-attachments/assets/15df1ebe-bb33-4765-8d0d-1bd59533d00e)
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
 
 
-<gif src="[https://example.com/image.png](https://64.media.tumblr.com/be82438683120ad92327599f91b4dd61/aa3450e73c80eefc-f0/s100x200/bc85c84a1d84dab6fd70701b4112d5d22e865212.gifv)" width="200" height="100">
+
 
 
 
@@ -45,5 +45,3 @@ $\color{#eb4967}{\textsf{checking smth rq}}$  its a wip please dont look im shy
     
 ![tumblr_93723850dbda4b627490493b16faf819_a19a12a1_400](https://github.com/user-attachments/assets/dd4e5fdc-b892-4a65-8136-4116a6c95ef1) 
 
-
-<gif align=left width="200" height="200" src="https://64.media.tumblr.com/93723850dbda4b627490493b16faf819/d8227602cc64ef1e-f3/s640x960/68a31250bb5c6dd21b373d5433c40f6e351da3cf.gifv">лалала 
