@@ -39,6 +39,8 @@
 
 $\color{#eb4967}{\textsf{checking smth rq}}$  its a wip please dont look im shy
 
-![tumblr_93723850dbda4b627490493b16faf819_a19a12a1_400](https://github.com/user-attachments/assets/bb67f92a-cfa6-4130-9a59-89faaf9024de)айцукенгшщзхэждлорпавыячсмитьбю.ждлорпавыфйцукенгшщзждлорпавычсмитьоблдю
+<img align="left" width="100" height="100" src="![tumblr_93723850dbda4b627490493b16faf819_a19a12a1_400](https://github.com/user-attachments/assets/2745c286-0ebb-4dfd-9cf1-0065e5d8e8b7)
+"> хуй пизда сковорода
 
-<img align="left" width="100" height="100" src="https://picsum.photos/100/100"> хуй пизда сковорода
+
+
