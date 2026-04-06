@@ -39,8 +39,7 @@
 
 $\color{#eb4967}{\textsf{checking smth rq}}$  its a wip please dont look im shy
 
-<img align="left" width="100" height="100" src="![tumblr_93723850dbda4b627490493b16faf819_a19a12a1_400](https://github.com/user-attachments/assets/2745c286-0ebb-4dfd-9cf1-0065e5d8e8b7)
-"> хуй пизда сковорода
 
+<img align="left" width="100" height="100" src="https://64.media.tumblr.com/93723850dbda4b627490493b16faf819/d8227602cc64ef1e-f3/s640x960/68a31250bb5c6dd21b373d5433c40f6e351da3cf.gifv">
 
 
