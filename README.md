@@ -27,7 +27,10 @@
 
 $\color{#A2623B}{\textsf{ (:̲̅:̲̅:̲̅[̲̅:✙:]̲̅:̲̅:̲̅:̲̅) ⠀ 6teen  russian  𑊁 ｡ she / her  ⠀}}$
 
-ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ $\color{#3E2721}{\textsf{⋅ 　c × h　freely !　𓏺　often offtab　w2i　 ⋅　}}$ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ![к](https://github.com/user-attachments/assets/397d43c9-1242-405d-856a-b337c7987e68)
+$\color{#3E2721}{\textsf{⋅ 　c × h　freely !　𓏺　often offtab　w2i　 ⋅　}}$
 
+<div align="right">
+ 
+![к](https://github.com/user-attachments/assets/81b28c55-cd3f-4043-805e-1570fd05cb10)
 
 
