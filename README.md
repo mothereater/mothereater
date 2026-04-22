@@ -25,7 +25,7 @@
  $\color{#D08950}{\textsf{𐂯⠀ ⠀ ⠀ mothereater ⠀ 𓋹⠀ ᴖ　roma ⠀໑}}$ ![tg_1](https://github.com/user-attachments/assets/48881d6d-27c8-41ec-8c08-e19e187a56ba)
  $\color{#D08950}{\textsf{ა }}$
 
-$\color{#A2623B}{\textsf{ (:̲̅:̲̅:̲̅[̲̅:✙:]̲̅:̲̅:̲̅:̲̅) ⠀ 6teen  russian  𑊁 ｡ she / her  ⠀}}$
+$\color{#A2623B}{\textsf{ (:̲̅:̲̅:̲̅[̲̅:✙:]̲̅:̲̅:̲̅:̲̅) ⠀ 7teen  russian  𑊁 ｡ she / her  ⠀}}$
 
 $\color{#3E2721}{\textsf{⋅ 　c × h　freely !　𓏺　often offtab　w2i　 ⋅　}}$
 
