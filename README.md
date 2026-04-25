@@ -19,9 +19,6 @@ $\color{#A2623B}{\textsf{ (:̲̅:̲̅:̲̅[̲̅:✙:]̲̅:̲̅:̲̅:̲̅) ⠀ 7t
 
 $\color{#3E2721}{\textsf{⋅ 　c × h　freely !　𓏺　often offtab　w2i　 ⋅　}}$
 
-<div align="right">
- 
-![к](https://github.com/user-attachments/assets/81b28c55-cd3f-4043-805e-1570fd05cb10)
 
 <div align="center">
 ㅤ
