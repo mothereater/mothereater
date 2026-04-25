@@ -17,7 +17,7 @@
 
 <div align="center">
 
-<sub> $\color{#575757}{\textsf{pfp　𝖻𝗒　@zzz deqb　on　x}}$<sub>
+<sub> $\color{#444444}{\textsf{pfp　𝖻𝗒　@zzz deqb　on　x}}$<sub>
 
 
 <sub>[infotgc](https://t.me/autopsykiss)　　[carrd](https://mothereaters.carrd.co/)　　[新book](https://mothereater.atabook.org/)<sub>
