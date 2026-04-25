@@ -17,5 +17,4 @@
 
 <div align="center">
  
-<sub>[infotgc](https://t.me/autopsykiss)　<img width="20" height="20" alt="wing-1" src="https://github.com/user-attachments/assets/169be6b6-a073-4f9e-82f5-fb20df481efc" />
-　[carrd](https://mothereaters.carrd.co/)　<img width="20" height="20" alt="wing-2" src="https://github.com/user-attachments/assets/bb0389ab-00a7-46fd-84fb-ce2d56b350a0" />　[新book](https://mothereater.atabook.org/)<sub>
+<img width="20" height="20" alt="wing-1" src="https://github.com/user-attachments/assets/169be6b6-a073-4f9e-82f5-fb20df481efc" /> <sub>[infotgc](https://t.me/autopsykiss)　　[carrd](https://mothereaters.carrd.co/)　　[新book](https://mothereater.atabook.org/)<sub> <img width="20" height="20" alt="wing-2" src="https://github.com/user-attachments/assets/bb0389ab-00a7-46fd-84fb-ce2d56b350a0" />
