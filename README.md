@@ -23,4 +23,4 @@ $\color{#3E2721}{\textsf{⋅ 　c × h　freely !　𓏺　often offtab　w2i　
 <div align="center">
 ㅤ
 
-<sub>######  [infotgc](https://t.me/autopsykiss)　　𓈒　　[carrd](https://mothereaters.carrd.co/)　　𓈒　　[新book](https://mothereater.atabook.org/)<sub>
+<sub>[infotgc](https://t.me/autopsykiss)　　𓈒　　[carrd](https://mothereaters.carrd.co/)　　𓈒　　[新book](https://mothereater.atabook.org/)<sub>
