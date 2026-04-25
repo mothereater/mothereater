@@ -3,9 +3,9 @@
 ‎ ‎   
 ‎ㅤ૮ 　‎![](https://komarev.com/ghpvc/?username=your-github-mothereater&color=5a5a5a&style=plastic&label=⠀　🥞　⠀&base=21198) 　‎ა ‎
 
-
+<div align="center">
+ 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&size=16&letterSpacing=-1px&duration=3000&pause=1000&color=724931&width=435&lines=%22i+am+truly+in+love+with+the+hope;that+sleeps+inside+you.%22)](https://git.io/typing-svg)
-
   　
 <div align="center">
 
