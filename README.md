@@ -1,6 +1,6 @@
 <div align="center">
  
-‎![](https://komarev.com/ghpvc/?username=your-github-mothereater&color=555555&style=flat-square&label=　࣪+☘︎+　+hope+believers+　+　࣪&base=21666)
+‎![](https://komarev.com/ghpvc/?username=your-github-mothereater&color=555555&style=flat-square&label=　࣪+☘︎+　+hope+believers+　+　࣪&base=21666) <img width="20" height="20" alt="grave" src="https://github.com/user-attachments/assets/172c2918-c4ca-4316-a807-6bcc994061ae" />
 
 
 
@@ -17,7 +17,7 @@
 
 <div align="center">
 
-<sub> $\color{#575757}{\textsf{pfp　𝖻𝗒　@zzz deqb　on　x}}$<sub> <img width="20" height="20" alt="grave" src="https://github.com/user-attachments/assets/93d16bf8-7fe7-4e02-af80-0cad4a79fd2f" />
+<sub> $\color{#575757}{\textsf{pfp　𝖻𝗒　@zzz deqb　on　x}}$<sub>
 
 
 <sub>[infotgc](https://t.me/autopsykiss)　　[carrd](https://mothereaters.carrd.co/)　　[新book](https://mothereater.atabook.org/)<sub>
