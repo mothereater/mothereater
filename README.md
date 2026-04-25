@@ -17,4 +17,4 @@
 
 <div align="center">
  
-<sub>[infotgc](https://t.me/autopsykiss)　　　[carrd](https://mothereaters.carrd.co/)　　　[新book](https://mothereater.atabook.org/)<sub>
+<sub>[infotgc](https://t.me/autopsykiss)　<img width="20" height="20" alt="tumblr_1e17718281f059c5dc14efe03ad2c473_e13aa4fe_75" src="https://github.com/user-attachments/assets/9f3f453c-b49d-4d5f-84cf-14541c98136a" />　[carrd](https://mothereaters.carrd.co/)　　　[新book](https://mothereater.atabook.org/)<sub>
