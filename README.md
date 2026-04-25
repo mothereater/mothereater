@@ -17,7 +17,7 @@
 
 <div align="center">
 
- <sub> $\color{#575757}{\textsf{pfp　𝖻𝗒　@zzz deqb on x}}$<sub>
+ <sub> $\color{#575757}{\textPlayfair Display{pfp　𝖻𝗒　@zzz deqb　on　x}}$<sub>
 
 
 
