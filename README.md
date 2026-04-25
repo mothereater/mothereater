@@ -9,7 +9,6 @@
 
 <div align="center">
  
- ㅤ 　‎
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Playfair+Display&size=17&letterSpacing=-1px&duration=4000&color=555555&multiline=true&width=450&lines=%22i+am+truly+in+love+with+the+hope;that+sleeps+inside+you.%22)](https://git.io/typing-svg)
   　
 <div align="center">
