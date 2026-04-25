@@ -16,5 +16,6 @@
 <img width="400" height="231" alt="41d7a5dec951586b9d09895124cdd7fc" src="https://github.com/user-attachments/assets/ff6f7a43-9e6d-48de-a287-ea2064b71fc3" />
 
 <div align="center">
- 
+ <img width="20" height="20" alt="tumblr_ec9c84b21a70295e004d265684ce1c7e_8d604fe5_75" src="https://github.com/user-attachments/assets/9a389e82-e774-49bf-8205-4312d5e0756e" />
+
 <sub>[infotgc](https://t.me/autopsykiss)　　[carrd](https://mothereaters.carrd.co/)　　[新book](https://mothereater.atabook.org/)<sub>
