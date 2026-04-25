@@ -18,4 +18,5 @@
 <div align="center">
 <img width="20" height="17" alt="fly" src="https://github.com/user-attachments/assets/e9b6a62d-20fb-4c27-83ff-c17f6c014ee7" /> <sub>pfp　𝖻𝗒　@______zzz_deqb on x<sub>
 
+
 <sub>[infotgc](https://t.me/autopsykiss)　　[carrd](https://mothereaters.carrd.co/)　　[新book](https://mothereater.atabook.org/)<sub>
