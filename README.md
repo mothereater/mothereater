@@ -17,8 +17,7 @@
 
 <div align="center">
 
-<img width="10" height="8" alt="fly" src="https://github.com/user-attachments/assets/e10a115e-cfce-4a0e-9eb1-4baa22da8d93" /> <sub> $\color{#575757}{\textsf{pfp　𝖻𝗒　@zzz deqb　on　x}}$<sub>
-
+<img width="10" height="8" alt="fly" src="https://github.com/user-attachments/assets/e10a115e-cfce-4a0e-9eb1-4baa22da8d93" /> <sub> $\color{#575757}{\textsf{pfp　𝖻𝗒　@zzz deqb　on　x}}$<sub> <img width="10" height="10" alt="grave" src="https://github.com/user-attachments/assets/93d16bf8-7fe7-4e02-af80-0cad4a79fd2f" />
 
 
 <sub>[infotgc](https://t.me/autopsykiss)　　[carrd](https://mothereaters.carrd.co/)　　[新book](https://mothereater.atabook.org/)<sub>
