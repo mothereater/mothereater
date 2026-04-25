@@ -1,7 +1,7 @@
 <div align="center">
  
 ‎ ‎   
-‎ㅤ૮ 　‎![](https://komarev.com/ghpvc/?username=your-github-mothereater&color=555555&style=for-the-badge&label=ㅤㅤ+hope+believers+　࣪𓈒+⠀　࣪&base=21666) 　‎ა ‎
+‎ㅤ 　‎![](https://komarev.com/ghpvc/?username=your-github-mothereater&color=555555&style=for-the-badge&label=ㅤㅤ+hope+believers+　࣪𓈒+⠀　࣪&base=21666)ㅤ 　
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&size=16&letterSpacing=-1px&duration=3000&pause=1&color=D8975D&center=true&vCenter=true&multiline=true&width=435&lines=%22i+am+truly+in+love+with+the+hope;that+sleeps+inside+you.%22)](https://git.io/typing-svg)
   　
