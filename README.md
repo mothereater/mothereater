@@ -21,3 +21,6 @@
 
 
 <sub>[infotgc](https://t.me/autopsykiss)　　[carrd](https://mothereaters.carrd.co/)　　[新book](https://mothereater.atabook.org/)　　[dni](https://teletype.in/@mothereater/autopsy_dni)<sub>
+
+<div align="center">
+<img width="60" height="48" alt="1" src="https://github.com/user-attachments/assets/9ff17d0e-1524-46a4-9184-87afeaf87827" />
