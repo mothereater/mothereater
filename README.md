@@ -1,3 +1,6 @@
+<img width="1000" height="64" alt="image" src="https://github.com/user-attachments/assets/55fe0d92-2dea-43b0-8044-f47acc452799" />
+
+
 <div align="center">
  
 ‎　 ![](https://komarev.com/ghpvc/?username=your-github-mothereater&color=555555&style=flat-square&label=　࣪+☘︎+　+hope+believers+　+　࣪&base=21666) <img width="20" height="20" alt="grave" src="https://github.com/user-attachments/assets/172c2918-c4ca-4316-a807-6bcc994061ae" />
@@ -21,6 +24,3 @@
 
 
 <sub>[infotgc](https://t.me/autopsykiss)　　[carrd](https://mothereaters.carrd.co/)　　[新book](https://mothereater.atabook.org/)　　[dni](https://teletype.in/@mothereater/autopsy_dni)<sub>
-
-<div align="center">
-<img width="60" height="48" alt="1" src="https://github.com/user-attachments/assets/9ff17d0e-1524-46a4-9184-87afeaf87827" />
