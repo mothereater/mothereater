@@ -1,4 +1,4 @@
-<img width="1000" height="64" alt="image" src="https://github.com/user-attachments/assets/55fe0d92-2dea-43b0-8044-f47acc452799" />
+<img width="750" height="54" alt="image" src="https://github.com/user-attachments/assets/55fe0d92-2dea-43b0-8044-f47acc452799" />
 
 
 <div align="center">
@@ -24,3 +24,6 @@
 
 
 <sub>[infotgc](https://t.me/autopsykiss)　　[carrd](https://mothereaters.carrd.co/)　　[新book](https://mothereater.atabook.org/)　　[dni](https://teletype.in/@mothereater/autopsy_dni)<sub>
+
+
+<img width="500" height="25" alt="image" src="https://github.com/user-attachments/assets/6344dc34-8af4-4426-ba30-d3a50c06abc4" />
