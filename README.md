@@ -8,7 +8,6 @@
 ㅤ
 ㅤ
 
-
 <div align="center">
  
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Playfair+Display&size=17&letterSpacing=-1px&duration=4000&color=555555&center=true&vCenter=true&multiline=true&width=450&lines=%22i+am+truly+in+love+with+the+hope;that+sleeps+inside+you.%22)](https://git.io/typing-svg)
@@ -22,7 +21,3 @@
 
 
 <sub>[infotgc](https://t.me/autopsykiss)　　[carrd](https://mothereaters.carrd.co/)　　[新book](https://mothereater.atabook.org/)　　[dni](https://teletype.in/@mothereater/autopsy_dni)<sub>
-
-
-<div align="center">
-<img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/5fede505-9296-451a-8f40-f9e29f21c490" />
