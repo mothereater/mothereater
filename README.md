@@ -17,7 +17,7 @@
 
 <div align="center">
 
-<sub> $\color{#444444}{\textsf{pfp}}$　$\color{#4e4e4e}{\textsf{𝖻𝗒}}$　$\color{#575757}{\textsf{@zzz deqb}}$　$\color{#5b5b5b}{\textsf{on　x}}$<sub>
+<sub> $\color{#444444}{\textsf{pfp}}$　${\textsf{\color{#4e4e4e}{𝖻𝗒}}$　$\color{#575757}{\textsf{@zzz deqb}}$　$\color{#5b5b5b}{\textsf{on　x}}$<sub>
 
 
 <sub>[infotgc](https://t.me/autopsykiss)　　[carrd](https://mothereaters.carrd.co/)　　[新book](https://mothereater.atabook.org/)　　[dni](https://teletype.in/@mothereater/autopsy_dni)<sub>
