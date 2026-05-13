@@ -1,5 +1,5 @@
 <div align="center">
-<img width="700" height="90" alt="image" src="https://github.com/user-attachments/assets/d84f2f24-89c4-4ebc-b947-c42daba79e47" />
+<img width="500" height="60" alt="image" src="https://github.com/user-attachments/assets/b3ac200c-1481-4eb0-89d6-b6dc1ea08aca" />
 
 
 <div align="center">
@@ -27,5 +27,3 @@
 <sub>[infotgc](https://t.me/autopsykiss)　　[carrd](https://mothereaters.carrd.co/)　　[新book](https://mothereater.atabook.org/)　　[dni](https://teletype.in/@mothereater/autopsy_dni)<sub>
 
 
-<div align="center">
-<img width="500" height="80" alt="image" src="https://github.com/user-attachments/assets/01d73f2f-707a-4820-b2eb-23bce6ba1f75" />
