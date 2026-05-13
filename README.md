@@ -1,6 +1,3 @@
-<div align="center">
-<img width="500" height="60" alt="image" src="https://github.com/user-attachments/assets/b3ac200c-1481-4eb0-89d6-b6dc1ea08aca" />
-
 
 <div align="center">
  
@@ -27,3 +24,5 @@
 <sub>[infotgc](https://t.me/autopsykiss)　　[carrd](https://mothereaters.carrd.co/)　　[新book](https://mothereater.atabook.org/)　　[dni](https://teletype.in/@mothereater/autopsy_dni)<sub>
 
 
+<div align="center">
+<img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/5fede505-9296-451a-8f40-f9e29f21c490" />
