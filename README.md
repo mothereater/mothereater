@@ -23,7 +23,7 @@
 
 <div align="center">
 
-<sub>$\color{#444444}{\textsf{pfp　}}$ ${\textsf{\color{#4e4e4e}𝖻𝗒　}}$ ${\textsf{\color{#575757}@xieow　}}$ ${\textsf{\color{#5b5b5b}on x}}$<sub>
+<sub>$\color{#B6BDDD}{\textsf{pfp　}}$ ${\textsf{\color{#CED8E9}𝖻𝗒　}}$ ${\textsf{\color{#D1C8E1}@xieow　}}$ ${\textsf{\color{#DAC4DB}on x}}$<sub>
 
 
 <sub>[infotgc](https://t.me/autopsykiss)　　[carrd](https://mothereaters.carrd.co/)　　[新book](https://mothereater.atabook.org/)　　[dni](https://teletype.in/@mothereater/autopsy_dni)<sub>
