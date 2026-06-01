@@ -16,7 +16,7 @@
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Playfair+Display&size=17&letterSpacing=-1px&duration=4000&color=555555&center=true&vCenter=true&multiline=true&width=450&lines=%22i+am+truly+in+love+with+the+hope;that+sleeps+inside+you.%22)](https://git.io/typing-svg)
 
 <div align="center">
-<img width="1104" height="1126" alt="6" src="https://github.com/user-attachments/assets/1813a018-8478-4ca0-899c-a50654256676" />
+<img width="1500" height="500" alt="4t" src="https://github.com/user-attachments/assets/b087ac51-8a7c-4642-a311-d9f2b517cf4f" />
 
 
 <div align="center">
