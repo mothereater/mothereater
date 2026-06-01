@@ -21,9 +21,9 @@
 
 <div align="center">
 
-<img width="115" height="21" alt="image" src="https://github.com/user-attachments/assets/36f7aa85-d11b-4382-a552-0bbea2662cdf" />
+<img width="110" height="20" alt="image" src="https://github.com/user-attachments/assets/36f7aa85-d11b-4382-a552-0bbea2662cdf" />
 
-<sub>$\color{#B6BDDD}{\textsf{pfp　}}$ ${\textsf{\color{#CED8E9}𝖻𝗒　}}$ ${\textsf{\color{#D1C8E1}@xieow　}}$ ${\textsf{\color{#DAC4DB}on x}}$<sub>
+$\color{#B6BDDD}{\textsf{pfp　}}$ ${\textsf{\color{#CED8E9}𝖻𝗒　}}$ ${\textsf{\color{#D1C8E1}@xieow　}}$ ${\textsf{\color{#DAC4DB}on x}}$
 
 
 <sub>[infotgc](https://t.me/autopsykiss)　　[carrd](https://mothereaters.carrd.co/)　　[新book](https://mothereater.atabook.org/)　　[dni](https://teletype.in/@mothereater/autopsy_dni)<sub>
