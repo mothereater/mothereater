@@ -1,7 +1,7 @@
 
 <div align="center">
  
-‎<img width="20" height="20" alt="tumblr_460dce40c9359ef8e5657487495dba21_3cfb2e3d_100" src="https://github.com/user-attachments/assets/cae682b2-eb66-4bc6-889f-1468e762e6bd" />
+‎<img width="40" height="40" alt="tumblr_460dce40c9359ef8e5657487495dba21_3cfb2e3d_100" src="https://github.com/user-attachments/assets/cae682b2-eb66-4bc6-889f-1468e762e6bd" />
 <img width="20" height="20" alt="right" src="https://github.com/user-attachments/assets/f933121c-23d5-4e06-9f0b-983a10df7b32" />
 　 ![](https://komarev.com/ghpvc/?username=your-github-mothereater&color=565656&style=flat-square&label=　+　+sundaylings+　+　࣪&base=22986)
 　 <img width="20" height="20" alt="left" src="https://github.com/user-attachments/assets/c524fa2f-1540-4c8c-8b97-fa0b996f3268" />
