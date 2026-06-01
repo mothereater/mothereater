@@ -21,7 +21,7 @@
 
 <div align="center">
 
-<img width="594" height="82" alt="3e" src="https://github.com/user-attachments/assets/a7aa8df8-3731-4f9f-8ffd-878c6ca66108" />
+<img width="297" height="41" alt="image" src="https://github.com/user-attachments/assets/36f7aa85-d11b-4382-a552-0bbea2662cdf" />
 
 <sub>$\color{#B6BDDD}{\textsf{pfp　}}$ ${\textsf{\color{#CED8E9}𝖻𝗒　}}$ ${\textsf{\color{#D1C8E1}@xieow　}}$ ${\textsf{\color{#DAC4DB}on x}}$<sub>
 
