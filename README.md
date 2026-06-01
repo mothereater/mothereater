@@ -19,7 +19,7 @@
 <div align="center">
 <img width="600" height="5" alt="tumblr_46cd4a12c8242ae27e3ba7debfaa4aec_61f92375_1280" src="https://github.com/user-attachments/assets/c33b19b9-2ed2-4f22-b109-9a0ac4432607" />
 <img width="600" height="304" alt="ка" src="https://github.com/user-attachments/assets/6b7a7522-f43f-45b0-b10c-c2816d0db0b1" />
-<img width="600" height="15" alt="tumblr_788c88150b35d00438fb290d42dc2e5d_82204e9f_1280" src="https://github.com/user-attachments/assets/87fbb97f-c22a-4392-84c5-24b10665f9ee" />
+<img width="600" height="140" alt="tumblr_c3c4afc31547eb7703bae1e91e1e0763_aea9d07e_2048" src="https://github.com/user-attachments/assets/fcb60272-ef62-431a-8449-cd5627cfdd5b" />
 
 
 <div align="center">
