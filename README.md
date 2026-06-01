@@ -8,13 +8,11 @@
 
 
 
-
-ㅤ
 ㅤ
 
 <div align="center">
  
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Playfair+Display&size=17&letterSpacing=-1px&duration=4000&color=555555&center=true&vCenter=true&multiline=true&width=450&lines=%22i+am+truly+in+love+with+the+hope;that+sleeps+inside+you.%22)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Bebas+Neue&size=16&letterSpacing=1px&pause=1&color=D9CAE1&center=true&vCenter=true&multiline=true&width=435&lines=%E2%80%9Cif+you+are+born+weak%2C;which+god+should+you+turn+to+for+solace%3F%E2%80%9D)](https://git.io/typing-svg)
 
 <div align="center">
 <img width="600" height="304" alt="ка" src="https://github.com/user-attachments/assets/6b7a7522-f43f-45b0-b10c-c2816d0db0b1" />
