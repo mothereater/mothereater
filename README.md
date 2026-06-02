@@ -2,7 +2,7 @@
 <div align="center">
  
 ‎
-　 ![](https://komarev.com/ghpvc/?username=your-github-mothereater&color=B6BDDD&style=flat-square&label=　+　+those+who+found+solace+　+　࣪&base=22986)
+　 ![](https://komarev.com/ghpvc/?username=your-github-mothereater&color=B6BDDD&style=flat-square&label=　+　+　⸌̣　ﻌ　⸍̣　+　+　࣪&base=22986)
 ㅤ<img width="20" height="20" alt="tumblr_a9c4916976754831bc2a4c174b1247b4_423e5392_75" src="https://github.com/user-attachments/assets/59cee36f-043e-4883-a6fa-99f096e58688" />
 
 
