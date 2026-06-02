@@ -19,7 +19,7 @@
 
 <div align="center">
  
-<sub>$\color{#B6BDDD}{\textsf{pfp }}$ ${\textsf{\color{#CED8E9}𝖻𝗒 }}$ ${\textsf{\color{#D1C8E1}@xieow }}$ ${\textsf{\color{#DAC4DB}on x}}$<sub>
+$\color{#B6BDDD}{\textsf{pfp }}$ ${\textsf{\color{#CED8E9}𝖻𝗒 }}$ ${\textsf{\color{#D1C8E1}@xieow }}$ ${\textsf{\color{#DAC4DB}on x}}$
 
 
 
