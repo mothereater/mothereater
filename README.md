@@ -29,5 +29,5 @@ $\color{#B6BDDD}{\textsf{pfp }}$ ${\textsf{\color{#CED8E9}𝖻𝗒 }}$ ${\textsf
  
 ${\textsf{\color{#DAC4DB}𝜗ৎ᭪ 𓏽}}$　　 <sub>[infotgc](https://t.me/autopsykiss)　　𓈒　　[dni](https://teletype.in/@mothereater/autopsy_dni)　　𓈒　　[新book](https://mothereater.atabook.org/)<sub>　　
 
-Ꮺ ㅤ $\color{#B6BDDD}{\textsf{mostly offtab}}$ ㅤ ﹠ ㅤㅤ ${\textsf{\color{#CED8E9}rus/eng}}$ ㅤㅤ ་ ˳
+Ꮺ ㅤ $\color{#B6BDDD}{\textsf{mostly offtab}}$ ㅤ ﹠ ㅤ ${\textsf{\color{#CED8E9}russian}}$ ㅤ ་ ˳ ㅤ ${\textsf{\color{#D1C8E1}fovwsrn}}$
 ‎ ‎✙ 　‎ 　 　౨          𖾞       
