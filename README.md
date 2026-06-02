@@ -26,4 +26,4 @@ $\color{#B6BDDD}{\textsf{pfp }}$ ${\textsf{\color{#CED8E9}𝖻𝗒 }}$ ${\textsf
 
 
 ㅤ
-𝜗ৎ᭪ 𓏽　　 <sub>[infotgc](https://t.me/autopsykiss)　𓈒　[carrd](https://mothereaters.carrd.co/)　　[新book](https://mothereater.atabook.org/)　　[dni](https://teletype.in/@mothereater/autopsy_dni)<sub>
+<sub>𝜗ৎ᭪ 𓏽　　 [infotgc](https://t.me/autopsykiss)　　𓈒　　[carrd](https://mothereaters.carrd.co/)　　[新book](https://mothereater.atabook.org/)　　[dni](https://teletype.in/@mothereater/autopsy_dni)<sub>
