@@ -7,7 +7,7 @@
  
 ‎
 ‎‎ ૮ 　‎ ![](https://komarev.com/ghpvc/?username=your-github-mothereater&color=B6BDDD&style=flat-square&label=　+　+　⸌̣　ﻌ　⸍̣　+　+　࣪&base=22986)
-　 ა　 <img width="20" height="20" alt="undefined - Imgur" src="https://github.com/user-attachments/assets/fe132b1d-ea87-4ab6-beaa-190c7a499b1c" />　˳　 ${\textsf{\color{#585858}𓏽}}$${\textsf{\color{#CED8E9}⑅}}$　　 
+　 ა　 <img width="20" height="20" alt="undefined - Imgur" src="https://github.com/user-attachments/assets/fe132b1d-ea87-4ab6-beaa-190c7a499b1c" />　˳　 ${\textsf{\color{#585858}𓏽}}$ ${\textsf{\color{#CED8E9}⑅}}$　　 
 ${\textsf{\color{#DAC4DB}𝄞}}$
 
 
