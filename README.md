@@ -3,7 +3,7 @@
  
 ‎
 　 ![](https://komarev.com/ghpvc/?username=your-github-mothereater&color=565656&style=flat-square&label=　+　+those+who+found+solace+　+　࣪&base=22986)
-ㅤ<img width="20" height="20" alt="tumblr_ae8a7be8ff2074a4c0c0d33276e20524_2cb267df_75" src="https://github.com/user-attachments/assets/1e9479f1-7372-4c68-8233-6097f5f02187" />
+ㅤ<img width="20" height="20" alt="tumblr_a9c4916976754831bc2a4c174b1247b4_423e5392_75" src="https://github.com/user-attachments/assets/59cee36f-043e-4883-a6fa-99f096e58688" />
 
 
 ㅤ
