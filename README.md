@@ -1,3 +1,5 @@
+<div align="center">
+ 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Cormorant+Garamond&size=18&letterSpacing=-1px&pause=1&color=D1C8E1&center=true&vCenter=true&multiline=true&width=450&height=65&lines=%E2%80%9Cif+you+are+born+weak%2C;which+god+should+you+turn+to+for+solace%3F%E2%80%9D)](https://git.io/typing-svg)
 
 <div align="center">
@@ -8,9 +10,6 @@
 ${\textsf{\color{#DAC4DB}𝄞}}$
 
 
-ㅤ
-
-<div align="center">
  
 
 
