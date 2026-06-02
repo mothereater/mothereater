@@ -29,7 +29,7 @@ $\color{#B6BDDD}{\textsf{p𝗳𝗽 }}$ ${\textsf{\color{#CED8E9}𝖻𝗒 }}$ ${\
  
 ${\textsf{\color{#DAC4DB}𝜗ৎ᭪ 𓏽}}$　　 <sub>[infotgc](https://t.me/autopsykiss)　　𓈒　　[dni](https://teletype.in/@mothereater/autopsy_dni)　　𓈒　　[新book](https://mothereater.atabook.org/)<sub>　　
 
-Ꮺ ㅤ $\color{#B6BDDD}{\textsf{𝗺𝗼𝘀tly o͟͟f͟͟ftab}}$ ㅤ ﹠ ㅤ ${\textsf{\color{#CED8E9}r𝘂𝘀𝘀𝗶an}}$ ㅤ <img width="20" height="20" alt="sANi3Ri - Imgur" src="https://github.com/user-attachments/assets/80d181b9-7e97-4353-b9c6-be2296b18d4d" />
+Ꮺ ㅤ $\color{#B6BDDD}{\textsf{𝗺𝗼𝘀tly offt͟͟a͟͟b͟͟}}$ ㅤ ﹠ ㅤ ${\textsf{\color{#CED8E9}r𝘂𝘀𝘀𝗶an}}$ ㅤ <img width="20" height="20" alt="sANi3Ri - Imgur" src="https://github.com/user-attachments/assets/80d181b9-7e97-4353-b9c6-be2296b18d4d" />
 ་ ˳ ㅤ ${\textsf{\color{#585858}fovwsrn}}$
 
 ‎
