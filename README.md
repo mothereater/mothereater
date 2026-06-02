@@ -25,7 +25,5 @@ ${\textsf{\color{#DAC4DB}𝄞}}$
 $\color{#B6BDDD}{\textsf{pfp }}$ ${\textsf{\color{#CED8E9}𝖻𝗒 }}$ ${\textsf{\color{#D1C8E1}@xieow }}$ ${\textsf{\color{#DAC4DB}on x}}$
 
 
-
 ㅤ
-
-<sub>[infotgc](https://t.me/autopsykiss)　　[carrd](https://mothereaters.carrd.co/)　　[新book](https://mothereater.atabook.org/)　　[dni](https://teletype.in/@mothereater/autopsy_dni)<sub>
+𝜗ৎ᭪ 𓏽　　 <sub>[infotgc](https://t.me/autopsykiss)　𓈒　[carrd](https://mothereaters.carrd.co/)　　[新book](https://mothereater.atabook.org/)　　[dni](https://teletype.in/@mothereater/autopsy_dni)<sub>
