@@ -13,7 +13,7 @@
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Cormorant+Garamond&size=18&letterSpacing=-1px&pause=1&color=FFFFFF&center=true&vCenter=true&multiline=true&width=450&height=65&lines=%E2%80%9Cif+you+are+born+weak%2C;which+god+should+you+turn+to+for+solace%3F%E2%80%9D)](https://git.io/typing-svg)
 
 <div align="center">
-<img width="600" height="304" alt="ка" src="https://github.com/user-attachments/assets/6b7a7522-f43f-45b0-b10c-c2816d0db0b1" />
+<img width="374" height="363" alt="sunday-sunday-hsr" src="https://github.com/user-attachments/assets/08461e44-b5a8-4fa3-99af-b367d74c500e" />
 
 
 
