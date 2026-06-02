@@ -33,4 +33,5 @@ ${\textsf{\color{#DAC4DB}𝜗ৎ᭪ 𓏽}}$　　 <sub>[infotgc](https://t.me/au
 ་ ˳ ㅤ ${\textsf{\color{#585858}fovwsrn}}$
 
 ‎
-‎$\color{#DAC4DB}{\textsf{✙}}$ 　‎ ![](https://komarev.com/ghpvc/?username=your-github-mothereater&color=D1C8E1&style=flat-square&label=+┣▇▇▇▇═──+&base=666)　 　౨          𖾞       
+‎$\color{#DAC4DB}{\textsf{　✙}}$ 　‎ 
+![](https://komarev.com/ghpvc/?username=your-github-mothereater&color=D1C8E1&style=flat-square&label=+┣▇▇▇▇═──+&base=666)　 　౨          𖾞       
