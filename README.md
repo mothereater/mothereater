@@ -28,3 +28,6 @@ $\color{#B6BDDD}{\textsf{pfp }}$ ${\textsf{\color{#CED8E9}𝖻𝗒 }}$ ${\textsf
 <div align="center">
  
 ${\textsf{\color{#DAC4DB}𝜗ৎ᭪ 𓏽}}$　　 <sub>[infotgc](https://t.me/autopsykiss)　　𓈒　　[dni](https://teletype.in/@mothereater/autopsy_dni)　　𓈒　　[新book](https://mothereater.atabook.org/)<sub>　　
+
+Ꮺ ㅤ $\color{#B6BDDD}{\textsf{mostly offtab}}$ ㅤ ﹠ ㅤㅤ ${\textsf{\color{#CED8E9}rus/eng}}$ ㅤㅤ ་ ˳
+‎ ‎✙ 　‎ 　 　౨          𖾞       
