@@ -20,9 +20,7 @@ ${\textsf{\color{#DAC4DB}𝄞}}$
 
 
 
-<div align="center">
- 
-<sub>$\color{#B6BDDD}{\textsf{p𝗳𝗽 }}$ ${\textsf{\color{#CED8E9}𝖻𝗒 }}$ ${\textsf{\color{#D1C8E1}@xi͟͟e͟͟o͟͟w }}$ ${\textsf{\color{#DAC4DB}on 𝘅}}$<sub>
+
 
 
 <div align="center">
